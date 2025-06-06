@@ -1,16 +1,13 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**7RIGUN/7RIGUN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://komarev.com/ghpvc/?username=7RIGUN&label=Aspects&color=red&style=flat)
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+![IMG_6057](https://giffiles.alphacoders.com/179/179797.gif)
+
+i just really like league and trigun . ok ? ok .
+
+<b> [RENTRY](https://rentry.co/eriks-) ㅤ[MATCHING](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
