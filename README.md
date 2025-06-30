@@ -6,8 +6,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-![IMG_6057](https://giffiles.alphacoders.com/179/179797.gif)
+![IMG_6605](https://github.com/user-attachments/assets/c8c879ff-958c-4821-9be9-e1b6b87b35c8) 
 
-i just really like league and trigun . ok ? ok .
-
-<b> [RENTRY](https://rentry.co/eriks-) ㅤ[MATCHING](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
+<b> [1.](https://rentry.co/eriks-)ㅤ [2.](https://rentry.co/yasukayn) ㅤ[3.](https://pantheon.atabook.org)</b>
