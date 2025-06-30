@@ -8,7 +8,6 @@
 
 ![IMG_6605](https://github.com/user-attachments/assets/c8c879ff-958c-4821-9be9-e1b6b87b35c8) 
 
-my name eriks  . . . picks my nose
 
 hmu if u like trigun / lol / ggst
 
