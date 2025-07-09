@@ -9,6 +9,6 @@
 ![IMG_6605](https://github.com/user-attachments/assets/c8c879ff-958c-4821-9be9-e1b6b87b35c8) 
 
 
-hmu if u like trigun / lol / ggst
+hmu if u like trigun / lol / ggst / apex
 
 <b> [1.](https://rentry.co/eriks-)ㅤ [2.](https://rentry.co/yasukayn) ㅤ[3.](https://pantheon.atabook.org)</b>
