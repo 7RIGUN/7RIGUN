@@ -11,4 +11,4 @@
 
 hmu if u like trigun / lol / ggst / apex
 
-<b> [1.](https://rentry.co/eriks-)ㅤ [2.](https://rentry.co/yasukayn) ㅤ[3.](https://pantheon.atabook.org)</b>
+<b> [1.](https://rentry.co/streetpass)ㅤ [2.](https://rentry.co/yasukayn) ㅤ[3.](https://pantheon.atabook.org)</b>
