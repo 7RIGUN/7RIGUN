@@ -9,6 +9,6 @@
 ![IMG_6605](https://github.com/user-attachments/assets/c8c879ff-958c-4821-9be9-e1b6b87b35c8) 
 
 
-i stopped playing ponytown for a while and now i dontlike any of my skins and im scared everyone forgot me PLS bmf or interact ( i esp love league , trigun , apex anf dc stuff....)
+i stopped playing ponytown for a while and now i dontlike any of my skins and im scared everyone forgot me PLS bmf or interact ( i esp love league , trigun anf DC !! ....)
 
 <b> [1.](https://rentry.co/enea)ㅤ [2.](https://rentry.co/yasukayn) ㅤ[3.](https://pantheon.atabook.org)</b>
