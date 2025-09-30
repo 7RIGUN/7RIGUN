@@ -6,7 +6,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
   
-![IMG_6605](https://i.pinimg.com/1200x/24/ef/f9/24eff94ce0bf306f922d3525625896c8.jpg) 
+![IMG_6605](https://64.media.tumblr.com/f8e002eca6a5788fb47e0c782b20cda8/4ebddb31c7687b53-59/s2048x3072/45958bbdedc827ac665df552e87cd0c75f3812a1.jpg) 
 
 
 i stopped playing ponytown for a while and now i dontlike any of my skins and im scared everyone forgot me PLS bmf or interact ( i esp love league , trigun anf DC !! ....)
