@@ -11,4 +11,4 @@
 
 hi im niklas or eriks and i have no pt friends . please talk to me i dont like sitting alone :-)
 
-<b> [1.](https://rentry.co/drx)ㅤ [2.](https://phel.atabook.org) ㅤ[3.](https://www.last.fm/user/The_Riddlerr)</b>
+<b> ㅤ [ata.](https://phel.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyyice)</b>
