@@ -11,4 +11,4 @@
 
 hi im niklas or eriks and i have no pt friends . please talk to me i dont like sitting alone :-)
 
-<b> ㅤ [ata.](https://phel.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyice) ㅤ[steam.](https://steamcommunity.com/id/detrium/)</b>
+<b> ㅤ [ata.](https://niklas.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyice) ㅤ[steam.](https://steamcommunity.com/id/detrium/)</b>
