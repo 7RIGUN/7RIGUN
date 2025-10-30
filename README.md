@@ -9,6 +9,6 @@
 ![IMG_6605](https://64.media.tumblr.com/f8e002eca6a5788fb47e0c782b20cda8/4ebddb31c7687b53-59/s2048x3072/45958bbdedc827ac665df552e87cd0c75f3812a1.jpg) 
 
 
-hi im phel and i have no pt friends . please talk to lil ole me i dont like sitting alone C + H ALWAYS !!!!!!!!!ALWAYS!!!!!!!!
+hi im niklas or eriks and i have no pt friends . please talk to me i dont like sitting alone :-)
 
 <b> [1.](https://rentry.co/drx)ㅤ [2.](https://phel.atabook.org) ㅤ[3.](https://www.last.fm/user/The_Riddlerr)</b>
