@@ -9,6 +9,6 @@
 ![IMG_6605](https://i.pinimg.com/1200x/06/59/22/0659220ebe74bf03752dbcc69485ef1a.jpg) 
 
 
-hi im niklas or eriks and i have no pt friends . please talk to me i dont like sitting alone :-)
+hi im niklas  :-)
 
 <b> ㅤ [ab ME.](https://rentry.co/streetpass) ㅤ[ata.](https://niklas.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyice) ㅤ[tumblr.](https://www.tumblr.com/detriums)</b>
