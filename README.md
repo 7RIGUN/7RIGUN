@@ -6,7 +6,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
   
-![IMG_6605](https://i.pinimg.com/1200x/06/59/22/0659220ebe74bf03752dbcc69485ef1a.jpg) 
+![IMG_8416](https://github.com/user-attachments/assets/bcc7b865-8779-479b-9cb4-55a44ecc2436)
 
 
 hi im niklas  :-)
