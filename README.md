@@ -9,7 +9,7 @@
 ![IMG_8416](https://github.com/user-attachments/assets/bcc7b865-8779-479b-9cb4-55a44ecc2436)
 
 
-hi im niklas  :-) 
+hi im phel
 
 Guys i think i look so stupid when sat alone pls c+h
  
