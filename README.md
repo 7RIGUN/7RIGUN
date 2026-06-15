@@ -15,4 +15,4 @@
 creature of habit
  
 
-<b> ㅤ  ㅤ[ata.](https://phel.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyice) ㅤ[unfinished sp.](https://phels.straw.page)</b>
+<b> ㅤ  ㅤ[ata.](https://arin.atabook.org) ㅤ[fm.](https://www.last.fm/user/diceyice) ㅤ[unfinished sp.](https://phels.straw.page)</b>
