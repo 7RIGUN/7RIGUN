@@ -4,7 +4,7 @@
 
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&mode=light&bar_color=00ba97&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=009585&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=tildejohanne&redirect=true)
 
   [read about me !!!](https://rentry.co/drx)
 
